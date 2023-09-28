@@ -1,4 +1,4 @@
-Bom dia, nesse perfil é o meu então o perfil é meu então, belaza.
+Bom dia, nesse perfil é o meu então o perfil é meu então, beleza.
 🤓👍
 
 º Eu sou eu.
